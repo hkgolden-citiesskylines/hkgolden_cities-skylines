@@ -1,1 +1,1 @@
-# Cities:Skylines 正呀 ![[bomb]](http://m1.hkgolden.com/faces/bomb.gif)
+# Cities:Skylines 正呀 ![[bomb]](http://m1.hkgolden.com/faces/bomb.gif) ![[bomb]](http://m1.hkgolden.com/faces/bomb.gif) ![[bomb]](http://m1.hkgolden.com/faces/bomb.gif)
